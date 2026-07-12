@@ -1,1 +1,1 @@
-# Notifizr - Comming Soon
+# Notifizr - Coming Soon
